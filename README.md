@@ -1,0 +1,6 @@
+![Screenshot 2024-04-16 at 8 36 23 AM](https://github.com/urvidubal247/Pharma-Buddy/assets/167156345/9ec90b30-4159-41f6-93b1-a58bb33c6bbb)
+![Screenshot 2024-04-16 at 8 42 38 AM](https://github.com/urvidubal247/Pharma-Buddy/assets/167156345/149da935-5395-432d-bce8-441979c090d6)
+![Screenshot 2024-04-16 at 8 43 15 AM](https://github.com/urvidubal247/Pharma-Buddy/assets/167156345/d069e32a-fb40-486b-a590-50c58c7ca635)
+![Screenshot 2024-04-16 at 8 43 28 AM](https://github.com/urvidubal247/Pharma-Buddy/assets/167156345/9e986ce2-f7ac-471c-ad79-801e1d80af7a)
+![Screenshot 2024-04-16 at 8 43 41 AM](https://github.com/urvidubal247/Pharma-Buddy/assets/167156345/e009c410-76df-43a2-83dc-0745f85322cd)
+![Screenshot 2024-04-16 at 8 43 58 AM](https://github.com/urvidubal247/Pharma-Buddy/assets/167156345/6059a8d9-f931-43da-a394-bca33b5703d6)
